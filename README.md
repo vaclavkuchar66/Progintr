@@ -1,0 +1,1 @@
+zadaný vyučujícím na cvičení.
