@@ -1,3 +1,3 @@
 zadaný vyučujícím na cvičení.
-Under development.
+Under development,
 tady toto jsem udelal onlie
